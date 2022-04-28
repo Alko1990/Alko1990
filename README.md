@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Alko199
+- Im  a 32 year old trying to learn coding and a programming :) 
+-
